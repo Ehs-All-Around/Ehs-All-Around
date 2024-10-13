@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Ehs-All-Around
+- 👀 I’m interested in speedrunning and fps shooters
+- 🌱 I’m currently learning how to get better at soccer
+- 💞️ I’m looking to collaborate on nothing really
+- 📫 How to reach me is none of your business
+- 😄 Pronouns: He / Him
+- ⚡ Fun fact: I'm partially color blind
